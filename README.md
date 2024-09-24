@@ -4,8 +4,6 @@
 - 💞️ I’m looking to collaborate on modding my favorite games or making/helping make videos.
 - 📫 How to reach me: DM on here.
 - 😄 Pronouns: it.
-- ⚡ Fun fact: There's likely nothing fun about me. I have no friends and seldom have had any
-   for very long.
 
 <!---
 MonsMarineris/MonsMarineris is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
