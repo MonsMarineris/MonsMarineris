@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MonsMarineris
-- 👀 I’m interested in music and retro games.
+- 👀 I’m interested in music, fimmaking/editing, and retro games.
 - 🌱 I’m currently learning anything I can about programming, but admittedly am struggling.
-- 💞️ I’m looking to collaborate on modding my favorite games.
+- 💞️ I’m looking to collaborate on modding my favorite games or making/helping make videos.
 - 📫 How to reach me: DM on here.
 - 😄 Pronouns: it.
 - ⚡ Fun fact: There's likely nothing fun about me. I have no friends and seldom have had any
